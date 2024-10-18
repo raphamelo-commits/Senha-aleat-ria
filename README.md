@@ -1,0 +1,1 @@
+# Senha-aleat-ria
